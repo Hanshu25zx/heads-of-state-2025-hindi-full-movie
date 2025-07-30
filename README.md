@@ -35,8 +35,8 @@ John Cena and Idris Elba team up to save the world in this political action come
 
 ## 📥 Download Links
 
-- 🔗 [Google Drive - Hindi 1080p](#)  
-- 🔗 [Watch Online](#)
+- 🔗 [CLICK HERE TO WATCH Heads Of State](https://www.terabox.app/wap/share/filelist?surl=8ViFpRGum-uVxGUAzjchGA)
+- 🔗 
 
 ---
 
