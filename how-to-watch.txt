@@ -1,0 +1,1 @@
+"Use VLC player or MX player. Subtitles are embedded."
